@@ -1,4 +1,4 @@
-
+bridger western Script custom is the best bridger western Script, featuring auto-collect and invisibility. Safe and powerful for all your needs.
 
 
 
